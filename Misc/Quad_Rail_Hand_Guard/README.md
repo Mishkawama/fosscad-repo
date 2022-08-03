@@ -1,1 +1,0 @@
-# Quad Rail Hand Guard
